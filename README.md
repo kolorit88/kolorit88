@@ -1,1 +1,1 @@
-![а](https://tenor.com/bD0XF.gif)
+![а](https://media.tenor.com/liFJWwwNPM8AAAAj/dessert-battlefield.gif)
